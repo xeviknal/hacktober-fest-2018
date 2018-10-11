@@ -3,3 +3,5 @@
 ## Sergi, what do you think about Github?
 
 ## Irma, what do you think about CSS?
+
+## Xevi, I guess you know how it works, right?
