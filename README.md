@@ -4,3 +4,6 @@
 
 ## Irma, what do you think about CSS?
 a tricky way to make designers feel as IT experts. :D
+
+## Xevi, I guess you know how it works, right?
+
