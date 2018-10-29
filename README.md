@@ -15,3 +15,4 @@ bailongo, stop living in holidays, please.
 ### Cinnamon complains
 No puc dir res en contra de la canyella, em sap greu :(
 M'encanta el te de canyella amb extra de canyella
+El que no m'agrada és que em posa massa hot
