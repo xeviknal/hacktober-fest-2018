@@ -13,3 +13,4 @@ bailongo, stop living in holidays, please.
 ## complains area
 
 ### Cinnamon complains
+No puc dir res en contra de la canyella, em sap greu :(
