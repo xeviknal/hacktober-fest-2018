@@ -16,3 +16,6 @@ bailongo, stop living in holidays, please.
 No puc dir res en contra de la canyella, em sap greu :(
 M'encanta el te de canyella amb extra de canyella
 El que no m'agrada és que em posa massa hot
+
+### Xevi complains
+- M'agradaria queixarme de les vacances del xevi, em semblen ofensives.
