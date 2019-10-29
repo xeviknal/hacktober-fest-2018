@@ -15,3 +15,5 @@ am compleinink kos dis is veri dificult i no se ni que me ago bbes
 #Irma loves Manel
 
 #Bailongo is in love
+
+#Marina believes in monogamy
