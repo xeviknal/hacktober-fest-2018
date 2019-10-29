@@ -4,6 +4,8 @@ Who starts? Who fancy to complain about the team mates?
 #Complaining about Sergius +
 #choneo
 
+ola bbs cero dramas
+
 #Complaining for shirts
 
 #Shirt not short
